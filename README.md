@@ -1,6 +1,6 @@
 # Hi there 👋
 
-**`Being an Accounting degree to Web Developer`**
+**`Making the switch from a degree in Accounting to a career as a Web Developer`**
 
 With an Accounting degree, I already developed strong numeral and quantitative skills, with analytical and problem-solving capabilities. My accounting background can be particularly useful to switch careers to become a Web Developer who is passionate about everything that goes into building and developing web portals.
 
