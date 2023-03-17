@@ -6,6 +6,4 @@ With an Accounting degree, I already developed strong numeral and quantitative s
 
 ## 🌍 I'm based in El Salvador City, Misamis Oriental
 
-## 🖥️ See my portfolio at
-
 ## ✉️ You can contact me at mnovela21@yahoo.com
